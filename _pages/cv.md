@@ -11,8 +11,8 @@ redirect_from:
 
 Education
 ======
-High School Diploma (2023)
-Itech (2025-Current)
+* High School Diploma (2023)
+* Itech (2025-Current)
 
 Work experience
 ======
