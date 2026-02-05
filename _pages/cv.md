@@ -18,22 +18,22 @@ Work experience
 ======
 * AUGUST 2023 - PRESENT
 * Handy Food Store, Immokalee, FL - CSR
- * Attend customers at register
- * Restock shelves and assist in inventory
- * Maintain a safe and clean environment for the customer in and outside the store
- * Assist in receiving and unloading inventory
- * Open and close store
- * Resolve any issues at pump
- * Assist manager when needed
- * Help do day to day paperwork when needed
+  * Attend customers at register
+  * Restock shelves and assist in inventory
+  * Maintain a safe and clean environment for the customer in and outside the store
+  * Assist in receiving and unloading inventory
+  * Open and close store
+  * Resolve any issues at pump
+  * Assist manager when needed
+  * Help do day to day paperwork when needed
 
 * APRIL 2023 -JULY 2023
 * Little Caesars Pizza, Immokalee, FL - Food Preparer
- * Prepare and shape dough for the food line
- * Helped prepare other foods: crazy bread, stuff crazy bread, etc.
- * Maintain a clean and safe area at all times
- * Moved hot plates from front of the room to the back
- * Assist others when needed
+  * Prepare and shape dough for the food line
+  * Helped prepare other foods: crazy bread, stuff crazy bread, etc.
+  * Maintain a clean and safe area at all times
+  * Moved hot plates from front of the room to the back
+  * Assist others when needed
   
 Skills
 ======
